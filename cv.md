@@ -1,6 +1,7 @@
 ***
 #   **NIKOLAY ISHALIN**
 ***
+[![fxIiIUa7e-M.md.jpg](https://ltdfoto.ru/images/2023/11/09/fxIiIUa7e-M.md.jpg)](https://ltdfoto.ru/image/yYIIjV) 
 
 ### CONTACT
 + Location: Kazan , Russia
@@ -27,3 +28,4 @@ _______
 ### LANGUAGES
 + Russian - native
 + English - A2
+
