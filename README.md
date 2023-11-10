@@ -1,1 +1,1 @@
-https://suphiro.github.io/rsschool-cv/cv
+https://suphiro.github.io/rsschool-cv/
